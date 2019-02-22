@@ -1,2 +1,0 @@
-# progam
-leuk
